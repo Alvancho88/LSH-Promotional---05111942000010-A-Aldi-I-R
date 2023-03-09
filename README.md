@@ -1,0 +1,1 @@
+# LSH-Promotional---05111942000010-A-Aldi-I-R
